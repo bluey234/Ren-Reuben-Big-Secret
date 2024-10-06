@@ -1,0 +1,11 @@
+ 
+
+Chapter Four
+
+The Problem and the Mission
+
+Thirty seconds later the four were sprinting down the passageways with Dr Grate in front, Yangmo next, then Ren and with Axl bringing up the rear. They ran to a new collection of passageways that Ren didn’t recognise and at the fourth door they went inside a room littered with books, toys, computers and clothing. It took Ren a moment to realise where they were, *our room\! What happened?* Even if Axl was surprised, he showed no sign of it. Instead he said “ Did the person who did this show any sign of what he was looking for?” Twenty minutes later the room was as organized as it was before “Anything missing” asked Dr Grate worriedly, before Ren could reply Mo said “My rabbit necklace” “Is it special?” asked the adults “Why is it a rabbit?” asked Ren. Mo replied “it is special because it is made out of jade and it is my grandmother's necklace. It is a rabbit because I was born in the year of rabbits. “Oh” everyone said except Axl and Yangmo. “If it helps I put a microchip in it” everybody else's eyes brighten up and say “of course it helps\!”
+
+                                                            \*
+
+	While Yangmo and another staff member of SI3 tracked his necklace, Axl showed Ren their mission; go to the place disguised as workers that are in desperate need of money. Then Axl showed Ren to the gadgets room, there were all sorts of things but Axl led Ren to a stationary section and “You and Yangmo will be needing these” he said being a bit cryptic *ordinary pens I wonder what to do with these?* As though Axl had read his mind he said “When you click it once it’s a normal pen when you click twice rapidly it makes it a bomb with a ten second countdown”. Next they moved on to the dental section Axl led him over to the braces “These braces are normal or they look normal, if you use your tongue to touch in front of the top row of teeth once it means you found information. Twice it means  you’re in trouble. Three times it means Yangmo is in trouble. Four times it turns into a tracker and also means trouble. Got it?” Ren nodded. “This bag is going to be yours with normal gadgets. I trust you will know what to do with them as you have read a lot of spy books”. A ding\! Told them that their visit was over…
